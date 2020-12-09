@@ -1,0 +1,1 @@
+White Sauce pasta is a tasty dish from Italy. It is a favorite for both kids and adults. The sauce is made out of flour, cream, milk and spices. It is a very nice dish to eat, and a lot of my friends love it!
